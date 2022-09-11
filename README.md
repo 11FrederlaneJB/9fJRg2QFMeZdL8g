@@ -1,0 +1,2 @@
+# 9fJRg2QFMeZdL8g
+android anda dengan mudah, Pemasang APK adalah alat termudah untuk memasang aplikasi Android hanya dengan Satu Klik.  Pencarian alat Pemasang APK. Fail APK pada storan peranti atau kad SD anda, aplikasi ini akan menemui semua fail APK di telefon anda.  Ciri-ciri APP:  * Cari fail APK * Batch install fail apk dengan satu Langkah * Imbas fail APK dari Storan Luar dan Kad SD * Tunjukkan Jumlah fail apk * Batch menghapus fail apk dari Storan Luar dan Kad SD * Status fail Apk 
